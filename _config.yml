@@ -1,0 +1,8 @@
+excerpt_separator: ""
+pygments: true
+markdown: kramdown
+url: http://eastbuzz.github.io
+title: Fendi Fans
+tagline: All about Fendi
+description: My awesome new site
+paginate: 10
