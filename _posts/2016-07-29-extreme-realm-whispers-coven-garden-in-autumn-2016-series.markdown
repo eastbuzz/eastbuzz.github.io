@@ -1,0 +1,6 @@
+---
+published: true
+title: Extreme realm whispers | COVEN GARDEN in autumn 2016 series
+layout: post
+---
+![Alt Extreme realm whispers | COVEN GARDEN in autumn 2016 series](https://c2.staticflickr.com/8/7530/28014365243_685f015064_z.jpg)Extreme realm whispers/Tomorrows LandRoaming boundary [SUSSI patina 2016F W big starting hand Zhu Yongan](http://www.focalstyle.com/2016/07/20/sussi-patina-2016f-w-big-starting-hand-zhu-yongan-interpretation-of-fusion/)From the boundless world of fragrant gardens to bloomSkyline in the distance extension closed [SUSSI patina 2016F W big starting hand Zhu Yongan](http://www.focalstyle.com/2016/07/20/sussi-patina-2016f-w-big-starting-hand-zhu-yongan-interpretation-of-fusion/)Big white clouds floating in the skySix ether Ethereal ice blue gripped![Alt Extreme realm whispers | COVEN GARDEN in autumn 2016 series](https://c2.staticflickr.com/8/7571/28524014452_244318a6f8_b.jpg)In this world of endless possibilities of the world of tomorrowImagination and logic of confrontationSpatio-temporal fluctuations would then be smoothedLand calmly lying across the North Atlantic RidgeEmbrace the winter soft SunSnow and ice melt, all the gravity zero
